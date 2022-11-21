@@ -1,0 +1,1 @@
+el lema del sistema de salud en el gobierno del regimen militar de torrijos del cual el ministro [[jose renan esquivel]] presidia sobre

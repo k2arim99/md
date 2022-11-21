@@ -1,0 +1,3 @@
+cooperation can look like farms getting together and owning their distributions, this means that sometimes [[cooperation not only helps farmers but  can reduce costs on everyone involved]] in the future this could look like a  kind of grocery coop, where farmers could cooperatively own the supermarkets themselves, together with other economic agents like directly consumers, a example of how coops [[spread the power of the economy around ]]. tying risks (and rewards) together equitatively instead to one economic section in particular. 
+
+it is good it is bad check out the book for quotes

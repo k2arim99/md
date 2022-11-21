@@ -1,0 +1,1 @@
+cooperation already has and had reduced costs for farmers, as there are example of owning together mills, warehouses, and other centers of logistics, sometimes via the state or not, the next step is i think is [[cooperative(s) ownership by farmers]] and consumers of the final gatekeepers of the food industry that are supermarkets

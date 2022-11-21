@@ -1,0 +1,5 @@
+
+
+[[steinman-2019]], (page 62) points out the american farming crisis of the 1980s was characterized by debt, high interest rates and high fuel costs, which rapidly increased farmers costs and thus diminished their profit rates, i find this related to that  [[en el mundo moderno no es extraño que los precios puedan caer por debajo de la rentabilidad con frecuencia| in the modern world is not unheard that prices can drop below rentability frequently]], farmers find themselves stuck in unprofitable crops and ventures due to outside of their control costs that have to be paid no matter what, and classical debt traps, as its [[pretty common that farmers live in "loan to loan" situations]], giving them no respite or fallback mechanism, i would call this vulnerability to financial disruption
+
+[[steinman-2019]], (page 62)

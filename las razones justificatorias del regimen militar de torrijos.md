@@ -1,0 +1,2 @@
+la escusa fundamental que el gobierno militar de [[torrijos]] daba para su propia existencia fue la organizacion de la resistencia nacional y la lucha por el canal de panama
+- claro es una escusa de un regimen militar y deben tomarse cinicamente

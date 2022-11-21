@@ -1,0 +1,5 @@
+>La conclusión central de esta revisión de las reformas del Estado es que en América Latina ha tenido lugar una revolución silenciosa, en la cual el Estado se ha transformado gradualmente en muchas dimensiones. La extensión y profundidad que ha tenido la reforma del Estado contrasta con la opinión en boga según la cual la región ha puesto demasiado empeño en las reformas macroeconómicas y en la liberación de los mercados, descuidando las dimensiones institucionales del desarrollo.
+
+Este libro crees que a diferencia de la opinión general de que después de la época del consenso de Washington los los estados latinoamericanos no le han prestado atención a su administración pública o sea de sus recursos solo prestando la atención a las reformas macroeconómicas Y la liberación de Mercado que caracterizan la supuestamente llamada era neoliberal latinoamericana De hecho sí han habido cambios sustanciales que bien podrían llamarse los radicales
+
+[[El estado de las reformas del Estado en América Latina]]

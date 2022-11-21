@@ -1,0 +1,2 @@
+medida temporal para la tecnificacion de la produccion antes de repartir los terrenos a los campesinos en la epoca de la reforma agraria
+era cuasi [[cooperativas|cooperativas]] pero cuya autonomia campesina fue profundamente irrespetada, llevando a una serie de ineficiencias que mataron el proyecto, como algunos de tonosi como los descritos en el libro [[Cuando Se Acaban Los Montes]] de [[stanley hackedon moreno]]

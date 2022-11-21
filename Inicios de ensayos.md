@@ -1,0 +1,4 @@
+- La construcción de políticas populares será uno de los retos más complejos a los que la humanidad se ah enfrentado
+	- La [[democracia]] debe y llegará a todos los ámbitos de la sociedad, incluida la economía pero crear sistemas democráticos, duraderos, que protejan los derechos individuales y logren los objetivos de nuestras sociedades será crear estructuras extremadamente complejas que tomarán década en perfecionar
+	- A lo largo que aumentan los agentes participantes del [[Gobierno|gobierno]] aumentaran las dificultades de satisfacerlos apegándose a los principios anterior mencionados
+- 

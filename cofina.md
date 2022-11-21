@@ -1,0 +1,3 @@
+- empresa estatal de prestamos
+- tenian alguno hoteles al parecer
+- enormes escandalos durante el gobierno militar
